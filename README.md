@@ -1,2 +1,2 @@
 # pratikum-3
-done ya mass 
+maaf mas file nya dua saya lupa yang mana 
