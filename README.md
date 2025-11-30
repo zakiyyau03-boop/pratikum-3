@@ -1,2 +1,2 @@
 # pratikum-3
-maaf mas file nya dua saya lupa yang mana 
+file yang fiks di barisan no 2 mas
